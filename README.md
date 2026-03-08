@@ -1,0 +1,1 @@
+# KRG_3A_CC_23BCS12368_Om_Nayak
